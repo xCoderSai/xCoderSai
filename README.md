@@ -20,6 +20,5 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 - 🤔 I’m looking for help with more projects :-)
 - 💬 Talk to me about tech, CS, and the many intersections within it!
 - 📫 How to reach me: Twitter or Email!
-- 😄 Pronouns: She/her :-)
 - ⚡ Fun fact: I am related to multiple celebrities in The Philippines!
 
