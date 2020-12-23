@@ -16,7 +16,7 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 🦋 [Website](https://xcodersai.github.io/Site/main.html)
 
 - 🌱 I’m currently learning JS, SQL/SQL Frameworks, and Python (Mainly)
-- 👯 I’m looking to collaborate on ANYTHING! 
+- 👄 English + Spanish Speaker, can translate ASL/Italian. USA Based
 - 🤔 I’m looking for help with more projects :-)
 - 💬 Talk to me about tech, CS, and the many intersections within it!
 - 📫 How to reach me: Twitter or Email!
