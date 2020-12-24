@@ -24,11 +24,11 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 
 ## ✨ FEATURED ON ✨
 
--🎉Laurence Tognetti's Series]
--[Ep 108](https://twitter.com/ET_Exists/status/1300473989228163072?s=20)
--🎉GenZ Girls
--[WAVE 4 STEM](https://genzgirls.xyz/subpages/stories.html)
--💬Pending:
--🎉[tech girl thursdays with Shalini K(https://www.youtube.com/user/koolskay)
+- 🎉 Laurence Tognetti's Series
+- [Ep 108](https://twitter.com/ET_Exists/status/1300473989228163072?s=20)
+- 🎉 GenZ Girls
+- [WAVE 4 STEM](https://genzgirls.xyz/subpages/stories.html)
+## 💬 Pending:
+- 🎉 [tech girl thursdays with Shalini K](https://www.youtube.com/user/koolskay)
 
 
