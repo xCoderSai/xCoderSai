@@ -22,3 +22,11 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 - 📫 How to reach me: Twitter or Email!
 - ⚡ Fun fact: I am related to multiple celebrities in The Philippines!
 
+## ✨ FEATURED ON ✨
+
+[Laurence Tognetti's Series - Ep 108](https://twitter.com/ET_Exists/status/1300473989228163072?s=20)
+[GenZ Girls - WAVE 4 STEM](https://genzgirls.xyz/subpages/stories.html)
+💬Pending:
+[tech girl thursdays // Shalini K](https://www.youtube.com/user/koolskay)
+
+
