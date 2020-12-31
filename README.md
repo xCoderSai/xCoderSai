@@ -30,5 +30,6 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 - 🎉 Aldine ISD [Hour of Code 2020](https://twitter.com/CatieSai/status/1337491633932263427)
 ## 💬 Pending:
 - 🎉 [tech girl thursdays with Shalini K](https://www.youtube.com/user/koolskay)
+- 🎉 [Cat Out of the Bag](https://anchor.fm/catoutofthebag) by [Cat Carbonell](https://github.com/catcarbonell)
 
 
