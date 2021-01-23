@@ -1,6 +1,12 @@
 ## Hey there! ✨
 
-I'm xCoderSai, also known as Catherine De Mesa (╯°□°）╯︵ ┻━┻. A few of my roles include being a Support Intern @ Trill Project (Fall 2020), Apprentice Fellow @ Anita Borg (Spring 2021!), Fellow @ SCSC Foundation, and a previous moderator over at STEM Network Discord Server. I am currently a moderator over at /r/GirlsWhoCode and the affiliated Discord Server!
+I'm xCoderSai, also known as Catherine De Mesa (╯°□°）╯︵ ┻━┻. A few of my roles include: 
+- Support Intern @ Trill Project (Fall 2020)
+- Apprentice Fellow @ Anita Borg (Spring 2021!) 
+- Support/IT Intern @ SCSC Foundation 
+- ...and a previous moderator over at STEM Network Discord Server. 
+
+- I am currently a moderator over at /r/GirlsWhoCode and the affiliated Discord Server!
 Being originally a Psychology Major, I switched over in Fall 2019 -> Cybersecurity, and haven't looked back!
 
  All of my repositories are open for the public for full transparency. 
