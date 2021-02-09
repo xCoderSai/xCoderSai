@@ -33,7 +33,6 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 - 🎉 GenZ Girls [WAVE 4 STEM](https://genzgirls.xyz/subpages/stories.html)
 - 🎉 Aldine ISD [Hour of Code 2020](https://twitter.com/CatieSai/status/1337491633932263427)
 - 🎉 [tech girl thursdays with Shalini K](https://www.youtube.com/watch?v=ubfNNZa3GeY)
-## 💬 Pending:
 - 🎉 [Cat Out of the Bag](https://anchor.fm/catoutofthebag) by [Cat Carbonell](https://github.com/catcarbonell)
 
 
