@@ -1,7 +1,7 @@
 ## Hey there! ✨
 
 I'm xCoderSai, also known as Catherine De Mesa (╯°□°）╯︵ ┻━┻. A few of my roles include: 
-- Support Intern @ Trill Project (Fall 2020) 
+- Support Intern @ Trill Project (Fall 2020)... now an Associate Support + Partnerships Representative.
 - Support/IT Intern @ SCSC Foundation 
 - ...and a previous moderator over at STEM Network Discord Server. 
 
