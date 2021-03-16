@@ -28,6 +28,7 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 
 ## ✨ FEATURED ON ✨
 
+-🎉🎉🎉 Grace Hopper Conference 2020 + Opportunity Hub x SXSW 2021 scholar 🎉🎉🎉
 
 - 🎉 [OHUBxSXSW Scholar 2021-2022](https://opportunityhub.co/sxsw/)
 - 🎉 Laurence Tognetti's Series [Ep 108](https://twitter.com/ET_Exists/status/1300473989228163072?s=20)
