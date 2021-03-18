@@ -32,11 +32,11 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 
 [GHC](https://github.com/xCoderSai/xCoderSai/blob/main/GHCScholar.PNG) || [OHUB.SXSW](https://github.com/xCoderSai/xCoderSai/blob/main/Catherine%20De%20mesa.png)
 
- 🎉 [OHUBxSXSW Scholar 2021-2022](https://opportunityhub.co/sxsw/)
- 🎉 Laurence Tognetti's Series [Ep 108](https://twitter.com/ET_Exists/status/1300473989228163072?s=20)
- 🎉 GenZ Girls [WAVE 4 STEM](https://genzgirls.xyz/subpages/stories.html)
- 🎉 Aldine ISD [Hour of Code 2020](https://twitter.com/CatieSai/status/1337491633932263427)
- 🎉 [tech girl thursdays with Shalini K](https://www.youtube.com/watch?v=ubfNNZa3GeY)
+ 🎉 [OHUBxSXSW Scholar 2021-2022](https://opportunityhub.co/sxsw/) ||
+ 🎉 Laurence Tognetti's Series [Ep 108](https://twitter.com/ET_Exists/status/1300473989228163072?s=20) ||
+ 🎉 GenZ Girls [WAVE 4 STEM](https://genzgirls.xyz/subpages/stories.html) ||
+ 🎉 Aldine ISD [Hour of Code 2020](https://twitter.com/CatieSai/status/1337491633932263427) ||
+ 🎉 [tech girl thursdays with Shalini K](https://www.youtube.com/watch?v=ubfNNZa3GeY) ||
  🎉 [Cat Out of the Bag](https://anchor.fm/catoutofthebag) by [Cat Carbonell](https://github.com/catcarbonell)
 
 
