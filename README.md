@@ -30,7 +30,7 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 
 🎉🎉🎉 Grace Hopper Conference 2020 + Opportunity Hub x SXSW 2021 scholar 🎉🎉🎉
 
-[GHC](GHCScholar.png) || [OHUB.SXSW](https://github.com/xCoderSai/xCoderSai/blob/main/Catherine%20De%20mesa.png)
+[GHC](https://github.com/xCoderSai/xCoderSai/blob/main/GHCScholar.PNG) || [OHUB.SXSW](https://github.com/xCoderSai/xCoderSai/blob/main/Catherine%20De%20mesa.png)
 
  🎉 [OHUBxSXSW Scholar 2021-2022](https://opportunityhub.co/sxsw/)
  🎉 Laurence Tognetti's Series [Ep 108](https://twitter.com/ET_Exists/status/1300473989228163072?s=20)
