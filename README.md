@@ -23,7 +23,7 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 - 👄 English + Spanish Speaker, can translate ASL/Italian. USA Based
 - 📫 How to reach me: Twitter or Email!
 - ⚡ Fun fact: I am related to multiple celebrities in The Philippines!
-- 🤔 [Hack Your Own](https://hackyourown.org/) || [SCSC Foundation](https://www.scscfoundation.org/) || [The Language Project](https://www.the-language-project.org/) are some websites I am helping work on with!
+- 🤔 [Hack Your Own](https://hackyourown.org/) || [SCSC Foundation](https://www.scscfoundation.org/) || are some websites I am helping work on with!
 - 💬 Talk to me!
 
 ## ✨ FEATURED ON ✨
@@ -39,4 +39,5 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
  🎉 [tech girl thursdays with Shalini K](https://www.youtube.com/watch?v=ubfNNZa3GeY) ||
  🎉 [Cat Out of the Bag](https://anchor.fm/catoutofthebag) by [Cat Carbonell](https://github.com/catcarbonell)
 
+[In solidarity against dummies](https://rms-open-letter.github.io/)
 
