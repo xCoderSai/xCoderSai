@@ -1,7 +1,7 @@
 ## Hey there! ✨
 
 I'm xCoderSai, also known as Catherine De Mesa (╯°□°）╯︵ ┻━┻. A few of my roles include: 
-- Support/IT Intern @ SCSC Foundation 
+- Support/IT Intern @ Tranz Business Center
 - previous moderator over at STEM Network Discord Server, previously @ Trill Project 
 
 - I am currently a moderator over at /r/GirlsWhoCode and the affiliated Discord Server!
