@@ -13,7 +13,7 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 
 ## ~ Websites ~
 
-🐧 [Twitter](https://twitter.com/CatieSai)
+🐧 [Art](https://catiesai.crevado.com/)
 
 🧐 [LinkedIn](https://www.linkedin.com/in/catiesai/)
 
