@@ -17,7 +17,7 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 
 🧐 [LinkedIn](https://www.linkedin.com/in/catiesai/)
 
-🦋 [Website](https://xcodersai.github.io/website/new-site/index.html)
+🦋 [Website](https://xcodersai.github.io/)
 
 - 🌱 I’m currently learning whatever ¯\_(ツ)_/¯
 - 👄 English + Spanish Speaker, can translate ASL/Italian. USA Based
