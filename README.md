@@ -13,11 +13,11 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 
 ## ~ Websites ~
 
-🐧 [Art](https://catiesai.crevado.com/)
+🐧 [Website](https://xcodersai.github.io/)
 
 🧐 [LinkedIn](https://www.linkedin.com/in/catiesai/)
 
-🦋 [Website](https://xcodersai.github.io/)
+
 
 - 🌱 I’m currently learning whatever ¯\_(ツ)_/¯
 - 👄 English + Spanish Speaker, can translate ASL/Italian. USA Based
