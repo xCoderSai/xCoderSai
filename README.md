@@ -19,7 +19,7 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 
 
 
-- 🌱 I’m currently learning whatever ¯\_(ツ)_/¯
+- 🌱 I’m currently learning whatever ツ
 - 👄 English + Spanish Speaker, can translate ASL/Italian. USA Based
 - 📫 How to reach me: Twitter or Email!
 - ⚡ Fun fact: I am related to multiple celebrities in The Philippines!
