@@ -1,11 +1,10 @@
 ## Hey there! ✨
 
 I'm xCoderSai, also known as Catherine De Mesa (╯°□°）╯︵ ┻━┻. A few of my roles include: 
-- Support/IT Intern @ Tranz Business Center
-- previous moderator over at STEM Network Discord Server, previously @ Trill Project 
+- Student TA @ Microsoft TEALS, InternHacks / Buzzer / ColorStack mentee
+- previous moderator over at STEM Network Discord Server, previously @ Trill Project, etc 
 
-- I am currently a moderator over at /r/GirlsWhoCode and the affiliated Discord Server!
-Being originally a Psychology Major, I switched over in Fall 2019 -> Cybersecurity, and haven't looked back!
+- Additionally, I help moderate /r/GirlsWhoCode and their Discord, Secretary of Student Government, among multiple other roles.
 
  All of my repositories are open for the public for full transparency. 
 
