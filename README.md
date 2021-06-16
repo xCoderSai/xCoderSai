@@ -4,7 +4,7 @@ I'm xCoderSai, also known as Catherine De Mesa (╯°□°）╯︵ ┻━┻. A
 - Student TA @ Microsoft TEALS, InternHacks / Buzzer / ColorStack mentee
 - previous moderator over at STEM Network Discord Server, previously @ Trill Project, etc 
 
-- Additionally, I help moderate /r/GirlsWhoCode and their Discord, Secretary of Student Government, among multiple other roles.
+- Additionally, I help moderate /r/GirlsWhoCode and their Discord server!
 
  All of my repositories are open for the public for full transparency. 
 
