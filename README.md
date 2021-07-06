@@ -22,7 +22,7 @@ If you wish to ⭐ collaborate ⭐ on a project, feel free to talk to me. (◕�
 - 👄 English + Spanish Speaker, can translate ASL/Italian. USA Based
 - 📫 How to reach me: Twitter or Email!
 - ⚡ Fun fact: I am related to multiple celebrities in The Philippines!
-- 🤔 [Hack Your Own](https://hackyourown.org/) || [SCSC Foundation](https://www.scscfoundation.org/) || are some websites I am helping work on with!
+- 🤔 [PROJECT/WEBSITE LIST](https://github.com/xCoderSai/websites/blob/main/README.md)
 - 💬 Talk to me!
 
 ## ✨ FEATURED ON ✨
