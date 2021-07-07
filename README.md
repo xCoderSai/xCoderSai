@@ -1,10 +1,20 @@
 ## Hey there! ✨
 
-I'm xCoderSai, also known as Catherine De Mesa (╯°□°）╯︵ ┻━┻. A few of my roles include: 
+**Some services I offer:**
+
+- Art (Logos, themed, CD/DVD Covers, Character Concepts) **Contact me for Pricing**
+
+- **OSINT** Investigations, my pricing starts off at USD$50 and goes up depending on how in-depth we want to go with this. **If you're using this information to harm, I may either raise my prices or cancel this completely.**
+
+- Websites: $50/page or $350+ per website.
+
+I'm *xCoderSai*, also known as *Catherine De Mesa* (╯°□°）╯︵ ┻━┻. A few of my roles include: 
+
 - Student TA @ Microsoft TEALS, InternHacks / Buzzer / ColorStack mentee
+
 - previous moderator over at STEM Network Discord Server, previously @ Trill Project, etc 
 
-- Additionally, I help moderate /r/GirlsWhoCode and their Discord server!
+- Additionally, I help moderate **/r/GirlsWhoCode** and their Discord server!
 
  All of my repositories are open for the public for full transparency. 
 
